@@ -1,0 +1,9 @@
+# modul-6
+![alt text](https://github.com/Risqyta/modul-6/blob/master/Screenshot%20(266).png)
+![alt text](https://github.com/Risqyta/modul-6/blob/master/Screenshot%20(268).png)
+![alt text](https://github.com/Risqyta/modul-6/blob/master/Screenshot%20(269).png)
+![alt text](https://github.com/Risqyta/modul-6/blob/master/Screenshot%20(270).png)
+![alt text](https://github.com/Risqyta/modul-6/blob/master/Screenshot%20(271).png)
+![alt text](https://github.com/Risqyta/modul-6/blob/master/Screenshot%20(272).png)
+![alt text](https://github.com/Risqyta/modul-6/blob/master/Screenshot%20(273).png)
+![alt text](https://github.com/Risqyta/modul-6/blob/master/Screenshot%20(274).png)
